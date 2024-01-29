@@ -1,5 +1,5 @@
 # 💫 About Me:
-Sou estudante de ADS,e estudado Front e Bacnk-And.<br>Estou a procura de estagio .
+Sou estudante de ADS,e estudando Front e Bacnk-And.<br>Estou a procura de estagio .
 
 
 ## 🌐 Socials:
